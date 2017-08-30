@@ -1,0 +1,2 @@
+Já estou atuando na área de testes, e estou gostando muito do que estou fazendo. Percebo que nesta área posso aprender muito já que preciso saber um pouco de programação também para conseguir realizar um bom teste.
+Quero trabalhar em uma empresa onde os desenvolvedores estejam dispostos a programar de forma mais correta possível para que a empresa entregue o produto da melhor forma e de maneira que o cliente necessite.
